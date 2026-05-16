@@ -1,1 +1,1 @@
-"# chatgpt" 
+Chatgpt是个伟大的发明
